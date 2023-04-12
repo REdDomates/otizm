@@ -65,3 +65,20 @@ Bazen otizmli kişiler garip bir tonlamayla konuşur veya dili farklı bir şeki
 Bazılarınız bizim de garip bir tonlamayla sesli okuduğumuzu düşünebilir. Bunun nedeni hikayeyi aynı anda hem okuyup hem de hayal edemememizdir. Sadece okuma eylemi bile bize çok fazla çaba harcatıyor - kelimeleri sıralamak ve bir şekilde onları seslendirmek zaten çok uzun bir iş.
 
 Ancak daha fazla pratik yardımcı olacaktır. Lütfen bize asla gülmeyin, işimizi iyi yapmıyor olsak bile.
+
+## S8 SORULARA CEVAP VERMENİZ NEDEN UZUN SÜRÜYOR?
+
+Siz normal insanlar, inanılmaz bir hızda konuşuyorsunuz. Kafanızda bir şey düşünmenizle onu söylemeniz arasında sadece bir saniye geçiyor. Bizim için bu sihir gibi bir şey!
+
+Peki beynimizdeki devrelerde bir sorun mu var? Otizmli insanlar için hayat neredeyse sonsuza kadar zor olacak, ancak kimse otizmin nedenlerini gerçekten belirleyemedi. Elbette, karşımızdaki kişinin söylediklerine yanıt vermemiz asırlar alıyor. Bu kadar çok zamana ihtiyaç duymamızın nedeni illa ki anlamamış olmamız değil, konuşma sırası bize geldiğinde vermek istediğimiz cevabın çoğu zaman kafamızdan uçup gitmiş olmasıdır.
+
+Sizce bu ne kadar mantıklı geliyor bilmiyorum. Cevabımız kaybolduktan sonra, bir daha asla geri alamıyoruz. Yeniden ne dediğini hatırlayamıyorum. Onun sorusuna nasıl cevap verecektim? ... Bilemiyorum! Ve tüm bunlar arasında, daha fazla soru yağmuruna tutuluyoruz. Sonunda şöyle düşünüyorum, bu tamamen umutsuz. Kelimelerin selinde boğuluyor gibiyim.
+
+
+## S9 SÖYLEDİĞİNİZ HER KELİMEYİ DİNLEMELİ MİYİZ?
+
+Ağızdan ses çıkarmak ile iletişim kurmak aynı şey değil, değil mi? Bence birçok insan bunun tam olarak farkında değil. Acaba insanlar sözlü dil kullanıyorsa, istediklerini söyledikleri varsayımı var mı? Bu inanç yüzünden, otizmli insanlar daha da içlerine kapanıyorlar.
+
+Bazılarımız sesler çıkarabiliyor ya da kelimeler söyleyebiliyor diye, söylediklerimizin gerçekten söylemek istediklerimiz olduğu otomatik olarak ortaya çıkmaz. Basit 'Evet' veya 'Hayır' sorularında bile hata yaparız. Karşımdaki kişinin söylediklerimi yanlış anlaması ya da yanlış yorumlaması bana her zaman olur.
+
+Bir konuşmayı zar zor sürdürebildiğim için, yanlış giden şeyi düzeltmek benim gücümü aşıyor. Bu her olduğunda, bu kadar işe yaramaz olduğum ve suskun kaldığım için kendimden nefret ediyorum. Lütfen söylediğimiz her kelimenin niyet ettiğimiz şey olduğunu varsaymayın. Bu aramızdaki iletişimi zorlaştırıyor, biliyorum - jestleri bile kullanamıyoruz - ama kalbimizde ve aklımızda neler olup bittiğini anlamanızı gerçekten çok istiyoruz. Ve temelde, benim hislerim de sizinkilerle hemen hemen aynı.
