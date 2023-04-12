@@ -1,5 +1,8 @@
 # Bir çocuğun otizmin sessizliğinden gelen sesi
 
+![image](https://user-images.githubusercontent.com/88595126/231557082-b25c07c3-cf4f-40de-98e6-c115cc5ac6e8.png)
+
+
 ## S1 BU CÜMLELERI NASIL YAZIYORSUNUZ?
 
 Alfabe Tablosu sesli olmayan bir iletişim yöntemidir. Düşüncelerinizi ve niyetlerinizi ifade etmenin tek yolunun konuşmak olduğunu düşünebilirsiniz, ancak ses sinir sistemini kullanmadan istediğinizi söylemenin başka bir yolu daha var. İlk başlarda bunu başarabileceğimi hayal bile edemezdim, ama şimdi sadece bir bilgisayar ve alfabe tablosu kullanarak gerçek benliğimi ifade edebiliyorum.
