@@ -85,3 +85,126 @@ Ağızdan ses çıkarmak ile iletişim kurmak aynı şey değil, değil mi? Benc
 Bazılarımız sesler çıkarabiliyor ya da kelimeler söyleyebiliyor diye, söylediklerimizin gerçekten söylemek istediklerimiz olduğu otomatik olarak ortaya çıkmaz. Basit 'Evet' veya 'Hayır' sorularında bile hata yaparız. Karşımdaki kişinin söylediklerimi yanlış anlaması ya da yanlış yorumlaması bana her zaman olur.
 
 Bir konuşmayı zar zor sürdürebildiğim için, yanlış giden şeyi düzeltmek benim gücümü aşıyor. Bu her olduğunda, bu kadar işe yaramaz olduğum ve suskun kaldığım için kendimden nefret ediyorum. Lütfen söylediğimiz her kelimenin niyet ettiğimiz şey olduğunu varsaymayın. Bu aramızdaki iletişimi zorlaştırıyor, biliyorum - jestleri bile kullanamıyoruz - ama kalbimizde ve aklımızda neler olup bittiğini anlamanızı gerçekten çok istiyoruz. Ve temelde, benim hislerim de sizinkilerle hemen hemen aynı.
+
+
+## S10 NEDEN DÜZGÜN BİR KONUŞMA YAPAMIYORSUNUZ?
+
+Uzun zamandır biz otizmli insanların neden düzgün konuşamadığını merak ediyordum. Gerçekten söylemek istediklerimi asla söyleyemiyorum. Bunun yerine, ağzımdan hiçbir şeyle ilgisi olmayan sözel saçmalıklar dökülüyor. Bu beni çok üzüyordu ve hiç denemeden konuşan insanları kıskanmaktan kendimi alamıyordum. Duygularımız herkesinkiyle aynı, ama onları ifade etmenin bir yolunu bulamıyoruz.
+
+Kendi bedenlerimiz üzerinde bile doğru düzgün kontrolümüz yok. Hem hareketsiz kalmak hem de bize söylendiğinde hareket etmek zor - sanki arızalı bir robotu uzaktan kontrol ediyor gibiyiz. Bunun da ötesinde, her zaman azar işitiyoruz ve kendimizi bile açıklayamıyoruz. Eskiden tüm dünya tarafından terk edilmiş hissederdim.
+
+Lütfen bizi sadece dışarıdan yargılamayın. Neden düzgün konuşamadığımızı bilmiyorum. Ama konuşmayacağımızdan değil - konuşamadığımızdan ve bu yüzden acı çektiğimizden. Kendi başımıza bu sorunla ilgili yapabileceğimiz hiçbir şey yok ve eskiden Konuşamayan Ben'in neden doğduğunu merak ettiğim zamanlar oldu. Ancak yazılı iletişimle başladıktan sonra, şimdi kendimi alfabe tablosu ve bilgisayar aracılığıyla ifade edebiliyorum ve düşündüklerimi paylaşabilmek, benim de bu dünyada bir insan olarak var olduğumu anlamamı sağlıyor.
+
+Konuşamasaydınız hayatınızın nasıl olacağını hayal edebiliyor musunuz?
+
+
+## KAYIP KELIMELERIN GIZEMI
+
+
+Biz otizmli çocuklar, asla yeterince kelime kullanmayız ve tüm sorunlara bu eksik kelimeler neden olabilir. Bu örnekte, üç arkadaş otizmli sınıf arkadaşları hakkında konuşuyorlar: 'Hey, az önce o "Hepimiz" dedi!
+
+"Yani... bu bize katılmak istediği anlamına geliyor, değil mi?
+"Bilmiyorum. Belki de hepimizin bunu yapıp yapmadığını bilmek istiyordur.
+
+Aslında otistik kızın 'hepimiz' ifadesi, öğretmenin günün erken saatlerinde söylediği bir sözden geliyordu: 'Yarın hepimiz parka gidiyoruz'. Kızın öğrenmek istediği şey ne zaman gidecekleriydi. Bunu da kullanabildiği tek kelime olan 'hepimiz' kelimesini tekrarlayarak yapmaya çalıştı. Burada, eksik sözcüklerimizin hayal gücünüzü nasıl harekete geçirdiğini ve sizi burada, orada ve her yerde nasıl çılgınca kovalamacalara sürüklediğini görebilirsiniz.
+
+Dürüst olmak gerekirse, biz otizmli çocuklar ne kadar gizemli bir dil konuşuyoruz!
+
+## S11 NEDEN GÖZ TEMASI KURMUYORSUNUZ KONUŞURKEN?
+
+Doğru, insanların gözlerine pek bakmıyoruz. Bana defalarca 'kiminle konuşuyorsan gözlerinin içine bak' dendi ama ben yine de bunu yapamıyorum. Konuştuğum biriyle göz teması kurmak bana biraz ürkütücü geliyor, bu yüzden bundan kaçınma eğilimindeyim.
+
+O zaman tam olarak nereye bakıyorum? Sadece aşağıya ya da genel arka plana baktığımızı düşünebilirsiniz. Ama yanılırsınız. Aslında baktığımız şey diğer kişinin sesidir. Sesler görünür şeyler olmayabilir, ancak diğer kişiyi tüm duyu organlarımızla dinlemeye çalışıyoruz. Tamamen ne söylediğinizi anlamaya odaklandığımızda, görme duyumuz bir nevi devre dışı kalır. Gördüğünüz şeyin ne olduğunu anlayamıyorsanız, bu hiçbir şey görmemekle aynı şeydir.
+
+Beni uzun zamandır rahatsız eden şey, insanların bizimle konuşurken göz teması kurduğumuz sürece, bunun tek başına her kelimeyi anladığımız anlamına geldiği düşüncesidir. Ha! Tek gereken bu olsaydı, sakatlığım çok çok uzun zaman önce tedavi edilmiş olurdu ...
+
+## S12 İNSANLARLA EL ELE TUTUŞMAKTAN HOŞLANMIYOR GIBISINIZ.
+
+El ele tutuşmayı sevmediğimizden değil, sadece ilginç bir şey gördüğümüzde elimizi bırakıp kaçmaktan kendimizi alamıyoruz. Diğer kişinin 'Huh - elimi tutmak istemiyor gibi görünüyor' dediğini duyana kadar elimi bıraktığımı hatırlamıyorum bile.
+
+Bu beni gerçekten depresyona sokardı. Ama karşımdaki kişiye elini neden bıraktığımı açıklayamadığım ve gerçekten de elini uzun süre tutmakta zorlandığım için, yanlış anlaşılma konusunda yapabileceğim pek bir şey yok.
+
+Mesele kimin elini tuttuğum ya da el tutma eyleminin kendisi değil. Bu, otizmli çocukların uzaktan ilginç görünen her şeye atlama dürtüsüdür: işte bununla başa çıkmalıyız.
+
+## S13 TEK BAŞINIZA OLMAYI MI TERCİH EDİYORSUNUZ?
+
+"Ah, onun için endişelenmeyin - kendi başına olmayı tercih eder."
+
+Kaç kez duyduk bunu? Gerçekten insan olarak doğan birinin yalnız kalmak istediğine inanamıyorum. Hayır, otizmli insanlar için endişelendiğimiz şey, sizin için sorun yaratıyor olmamız veya hatta sinirlerinize dokunuyor olmamızdır. Bu nedenle, diğer insanların etrafında kalmak bizim için zordur. Bu nedenle, genellikle yalnız kalmak zorunda kalıyoruz.
+
+Gerçek şu ki, diğer insanlarla birlikte olmaktan zevk alıyoruz. Ancak hiçbir zaman, hiçbir şey yolunda gitmediği için yalnız kalmaya alışıyoruz ve bu farkında olmadan oluyor. Birisi benim yalnız kalmayı tercih ettiğimi söylerken duyduğumda, çaresizce yalnız hissediyorum. Adeta bana kasıtlı olarak soğuk davranıyorlar gibi hissettiriyorlar.
+
+## S14 SİZİNLE KONUŞURKEN NEDEN BİZİ GÖRMEZDEN GELİYORSUNUZ?
+
+Eğer birisi benden uzaktan konuşuyorsa, fark etmiyorum. Muhtemelen siz de 'aynı durum benim için de geçerli' diye düşünüyorsunuz, değil mi? Ancak benim için büyük bir baş ağrısı, birisi tam burada önümdeyken bile bana konuştuğunda hala fark etmememdir.
+
+Ancak 'fark etmemek' ile 'kasıtlı olarak görmezden gelmek' aynı şey değildir. Ancak insanlar genellikle benim kibirli ya da 'geri zekalı' olduğumu düşünür. Etrafımdaki insanlar her zaman "Sen de merhaba de Naoki," ya da "Ne diyorsun o zaman?" gibi şeyler söyleyerek benimle konuşulduğunu fark etmemi sağlıyorlar. Bu yüzden ne zaman böyle bir şey olsa, yeni bir kelime öğrenen bir kuş gibi bana söylenenleri tekrar ediyorum. Benimle konuşan kişiye karşı kendimi suçlu hissetsem de, özür bile dileyemiyorum, bu yüzden kendimi mutsuz hissediyorum ve düzgün bir insan ilişkisini yönetemediğim için utanıyorum.
+
+Uzaktaki bir dağa bakan bir kişi, önündeki bir karahindibanın güzelliğini fark etmez. Önündeki karahindibaya bakan bir kişi, uzaktaki bir dağın güzelliğini göremez. Bizim için insanların sesleri biraz buna benzer. Birinin orada olduğunu ve bizimle konuştuğunu sadece sesinden anlamak bizim için çok zordur. Bu nedenle, bizimle konuşmaya başlamadan önce dikkatimizi çekmek için önce isimlerimizi kullanmanız bize çok yardımcı olacaktır.
+
+## S15 YÜZ İFADELERİNİZ NEDEN BU KADAR SINIRLI?
+
+İfadelerimiz sadece bizden farklı düşündüğünüz için sınırlı görünüyor. Herkes gülerken benim gülememem bir süredir beni rahatsız ediyor. Sanırım otizmli bir kişi için neyin eğlenceli ya da komik olduğu fikri sizinkiyle uyuşmuyor. Bunun da ötesinde, durumların bize düpedüz umutsuz geldiği zamanlar oluyor - günlük hayatlarımız üstesinden gelinmesi gereken zorlu şeylerle dolu. Diğer zamanlarda ise şaşırdığımızda, gergin hissettiğimizde ya da utandığımızda donup kalıyor ve hiçbir duygu gösteremiyoruz.
+
+İnsanları eleştirmek, onları kızdırmak, aptal yerine koymak veya kandırmak, otizmli insanları güldürmez. İçimizden gülümsememizi sağlayan şey, güzel bir şeyler görmek veya bizi güldüren bir anıdır. Genellikle bizi kimse izlemediğinde olur. Ve gece, kendi başımıza kaldığımızda, yatağın altında kıkırdamalar veya boş bir odada kahkahalar atabiliriz... diğer insanlar veya başka bir şey hakkında düşünmek zorunda kalmadığımızda, işte o zaman doğal ifademizi takınırız.
+
+## S16 DOKUNULMAKTAN NEFRET ETTİĞİNİZ DOĞRU MU?
+
+Kişisel olarak, fiziksel temasla özel bir sorunum yok, ama tabii ki bazı otizmli insanlar kucaklanmaktan veya dokunulmaktan hoşlanmazlar. Nedenini bilmiyorum, dürüst olmak gerekirse - sanırım sadece kendilerini rahatsız hissettiriyor. Giysilerimizi mevsime göre ayarlamak bile, kışın daha fazla, yazın daha az giyinmek, dokunsal sorunları olan insanlar için çok büyük bir sorun olabilir. Duruma uygun hareket etmek zordur.
+
+Daha genel olarak, bir otizmli insan için başkası tarafından dokunulmak, hatta sahibi bile düzgün bir şekilde kontrol edemeyen bir beden üzerinde kontrolünü kullanmak anlamına gelir. Kendimizi kaybetmişiz gibi hissederiz. Buna bir düşünün - bu korkutucu bir şey!
+
+Ayrıca dokunulduğunda düşüncelerimizin görünür hale geleceği korkusu da var. Ve eğer bu olursa, karşımızdaki kişi bizim için gerçekten endişelenmeye başlayacaktır. Anlıyor musunuz? İnsanları dışarıda tutmak için kendi etrafımıza bir barikat kurarız.
+
+## S17 NEDEN AVUÇ İÇİNİZ KENDİNİZE DÖNÜK OLARAK EL SALLARSINIZ?
+
+
+Küçükken, "Hoşçakal" dendiğinde avuç içimi dışarı çevirerek el sallardım. Basit jimnastik egzersizleri ve dans etmek de imkansızdı benim için. Bunun nedeni, hareketleri taklit etmenin otizmli insanlar için zor olmasıdır. Vücut parçalarımızı iyi tanımadığımız için, gözlerimizle takip edebildiğimiz vücut kısımlarını hareket ettirmek, hareketleri doğru şekilde taklit etmenin ilk adımıdır.
+
+Bir gün kendimi boy aynasında görene kadar insanların bana yanlış yöne el salladığımı söylemelerini hiç anlamamıştım. İşte o zaman fark ettim - kendime el sallıyordum!
+
+hahah bu komikti
+
+
+## KAYARAK UZAKLAŞMAK
+
+"Ben hepimizden daha hızlı koşabilirim!" dedi Tavşan, vınlayarak.
+"Ama bunu çözmek için uzun zaman önce bir yarış yapmıştık ve ben kazanmıştım," dedi Kaplumbağa küserek. "Ben en hızlısıyım.
+Diğer hayvanların hiçbiri ilgilenmedi. "Ah, kimin umurunda?
+Ama Tavşan bir yarış daha yapmakta ısrar edince Kaplumbağa sonunda pes etti ve başlangıç çizgisine geldi.
+Tavşan ve Kaplumbağa arasındaki yarış başlamak üzereymiş.
+"Hazır, dur, başla!
+Tavşan müthiş bir hızla fırladı.
+Kaplumbağa'nın ayağı kaydı ve sırt üstü düştü, bu sırada diğer tüm hayvanlar iyi olup olmadığını görmek için Kaplumbağa'nın yanına koştular: 'Zavallı, iyi misin?
+Eve gidip dinlensen iyi olur.
+Ve böylece hepsi Kaplumbağayı evine geri taşımışlar.
+Tavşan bitiş çizgisine ulaşmış.
+Kendisinden başka kimse beklemiyordu.
+
+## S18 EN YÜKSEK ENERJİLİ BİR DÖNEMDEYKEN KAFANDAN NELER GEÇİYOR?
+
+Bazen otizmli kişiler bir anda kahkahalarla gülmeye başlar ya da ortada hiçbir neden yokken kendi başlarına çok eğleniyor gibi görünürler. Merak ediyor olmalısınız, ona ne oldu böyle?
+
+Böyle zamanlarda 'hayaller' kurarız. Ya da tam olarak hayal değil, ama zihnimizde birdenbire ortaya çıkan resimler veya sahneler yaşıyoruz. Belki bizi güldüren bir şeyin anısıdır, belki de okuduğumuz bir kitaptan bir sayfadır.
+
+Bunu anlamak sizin için zor olabilir. Ancak bu 'yüksekleri', komik bir şey hatırladığınız ve kıkırdamaktan kendinizi alamadığınız zamanların daha güçlü bir versiyonu olarak görmeye çalışın.
+
+## S19 HATIRLADIGINIZ ANILARINIZ NASILDIR?
+
+
+Ne yaptığımızı, ne zaman, nerede, kiminle yaptığımızı ve bunun gibi şeyleri hatırlarız, ancak bu anıların hepsi dağınıktır ve asla doğru sırayla bağlantılı değildir. Dağınık anılarla ilgili sorun, bazen sanki daha yeni yaşanmışlar gibi kafamda yeniden canlanmalarıdır - ve bu olduğunda, başlangıçta hissettiğim tüm duygular ani bir fırtına gibi bana geri gelir. Bu bir flashback anısı.
+
+Çok sayıda hoş anım olduğunu biliyorum, ancak flashback anılarım her zaman kötü anılar oluyor ve birdenbire inanılmaz derecede sıkıntıya giriyorum, gözyaşlarına boğuluyorum veya paniklemeye başlıyorum. Yıllar öncesine ait bir anı olması önemli değil - o zaman yaşadığım çaresizlik hissi taşıyor ve sel gibi akıyor ve bir türlü durmuyor.
+
+Bu yüzden böyle bir şey olduğunda, bırakın güzelce ağlayalım ve sonra tekrar ayağa kalkabiliriz. Belki çıkardığımız gürültü biraz sinirlerinizi bozabilir ama lütfen neler yaşadığımızı anlamaya çalışın ve bizimle kalın.
+
+## S20 KÜÇÜK HATALARI NEDEN BU KADAR BÜYÜTÜYORSUNUZ?
+
+
+Bir hata yaptığımı gördüğümde zihnim kapanıyor. Ağlıyorum, çığlık atıyorum, büyük bir yaygara koparıyorum ve artık hiçbir şey hakkında doğru dürüst düşünemiyorum. Hata ne kadar küçük olursa olsun, benim için çok büyük bir olaydır, sanki cennet ve dünya tersine dönmüş gibidir. Örneğin, bir bardağa su döktüğümde, bir damla bile dökülse dayanamıyorum.
+
+Bunun beni neden bu kadar mutsuz ettiğini anlamak sizin için zor olmalı. Ve benim için bile, bunun o kadar da önemli olmadığını biliyorum. Ama duygularımı kontrol altında tutmak benim için neredeyse imkânsız. Bir kez hata yaptığımda, bunun gerçekliği bir tsunami gibi üzerime doğru gelmeye başlıyor. Ve sonra, tsunami tarafından yıkılan ağaçlar ya da evler gibi, ben de şok tarafından yıkılıyorum. O anın içinde yutuluyorum ve doğru tepkiyle yanlış tepkiyi ayırt edemiyorum. Tek bildiğim, boğulmamak için bu durumdan bir an önce kurtulmam gerektiğidir. Kaçmak için her şeyi yaparım. Ağlamak, çığlık atmak ve bir şeyler fırlatmak, hatta vurmak ...
+
+Nihayet, nihayet, sakinleşip kendime geleceğim. O zaman tsunami saldırısından hiçbir iz göremiyorum - sadece yaptığım enkazı görüyorum. Ve bunu gördüğümde kendimden nefret ediyorum. Sadece kendimden nefret ediyorum.
+
+
